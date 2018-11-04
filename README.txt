@@ -1,1 +1,1 @@
-Now it the time for all good men to come to the aide of their country.
+Now it the time for all good men to come to the aide of their country!
